@@ -1,0 +1,1 @@
+# juxingbodeMatlabdaima-EP-PINNsyongyuAliev-Panfilovxinzangdianshenglixuemoxingdeqiujieqi
